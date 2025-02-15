@@ -20,7 +20,7 @@
 
 <h1 align="center" style="font-size: 3em; color: #ff0000; text-shadow: 2px 2px 4px #000000, 0 0 25px #ff0000, 0 0 5px #ff0000;">𝕎𝔼 𝔸𝕃𝕎𝔸𝕐𝕊 𝔹𝔼𝕃𝕀𝔼𝕍𝔼</h1>
 <p align="center" style="font-size: 1.8em; color: #ff0000; text-shadow: 2px 2px 4px #000000, 0 0 25px #ff0000, 0 0 5px #ff0000;">
-  "WE ARE ANONYMOUS, WE ARE LEGION, WE ARE HERE JUST WANT TO TELL THE PEOPLE THAT WE ARE HERE WE ALL WATCHING YOU IF U DON'T RESPECT US, WE WILL DESTROY YOUR CYBERSPACE. WE ALL SEE, AND WE ALL CARE."
+  ​🇼​​🇪​ ​🇦​​🇷​​🇪​ ​🇦​​🇳​​🇴​​🇳​​🇾​​🇲​​🇴​​🇺​​🇸​, ​🇼​​🇪​ ​🇦​​🇷​​🇪​ ​🇱​​🇪​​🇬​​🇮​​🇴​​🇳​, ​🇼​​🇪​ ​🇦​​🇷​​🇪​ ​🇭​​🇪​​🇷​​🇪​ ​🇯​​🇺​​🇸​​🇹​ ​🇼​​🇦​​🇳​​🇹​ ​🇹​​🇴​ ​🇹​​🇪​​🇱​​🇱​ ​🇹​​🇭​​🇪​ ​🇵​​🇪​​🇴​​🇵​​🇱​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇼​​🇪​ ​🇦​​🇷​​🇪​ ​🇭​​🇪​​🇷​​🇪​ ​🇼​​🇪​ ​🇦​​🇱​​🇱​ ​🇼​​🇦​​🇹​​🇨​​🇭​​🇮​​🇳​​🇬​ ​🇾​​🇴​​🇺​ ​🇮​​🇫​ ​🇺​ ​🇩​​🇴​​🇳​❜​🇹​ ​🇷​​🇪​​🇸​​🇵​​🇪​​🇨​​🇹​ ​🇺​​🇸​, ​🇼​​🇪​ ​🇼​​🇮​​🇱​​🇱​ ​🇩​​🇪​​🇸​​🇹​​🇷​​🇴​​🇾​ ​🇾​​🇴​​🇺​​🇷​ ​🇨​​🇾​​🇧​​🇪​​🇷​​🇸​​🇵​​🇦​​🇨​​🇪​. ​🇼​​🇪​ ​🇦​​🇱​​🇱​ ​🇸​​🇪​​🇪​, ​🇦​​🇳​​🇩​ ​🇼​​🇪​ ​🇦​​🇱​​🇱​ ​🇨​​🇦​​🇷​​🇪​
 </p>
 
 ---

@@ -1,4 +1,3 @@
-# Extracted Image:
 <p align="center">
   <img src="https://i.postimg.cc/YCcbh6yY/6062074634834133453-photoaidcom-cropped.png" alt="Channel Logo" width="200"/>
 </p>
